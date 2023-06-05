@@ -15,7 +15,7 @@
 - 👩‍💻 An aspiring software developer eager to join the tech community  
   
 
-- ⚡ Fun fact:  Smile
+- ⚡ Fun fact:  Nothing starts with n and ends with g 😆
   
 
 <br/>  
